@@ -1,0 +1,40 @@
+# Digital-Marketing-task-2
+
+*company*: CODETECH IT SOLUTIONS 
+
+*NAME*:K.NAGA SOWMYA
+
+*INTERN ID*:CT04DZ2231
+
+*DOMINE*: DIGITAL MARKETING
+
+*DURATION*:4WEEKS
+
+*MENTOR*:NEELA SANTOSH
+
+#DESCRIPTION#
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
